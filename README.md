@@ -1,0 +1,2 @@
+# omed.king
+Good luck
